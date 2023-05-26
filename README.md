@@ -1,4 +1,4 @@
 # NowyTeam
-![Purple Modern Game Channel Youtube Banner (2) (1)](https://user-images.githubusercontent.com/114868147/216804220-58acbfec-91c1-4e71-bdfe-2f3973641339.png)
+![Purple Modern Game Channel Youtube Banner (2) (1)](https://static.wikia.nocookie.net/5fb20cff-85ee-4dc3-8337-a3fbebee8737/scale-to-width/755)
 
 
