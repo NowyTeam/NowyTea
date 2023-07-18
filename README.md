@@ -1,4 +1,4 @@
-# NowyTeam
-![Purple Modern Game Channel Youtube Banner (2) (1)](https://i.imgur.com/ZYp2287.gif)
-
+<h1>Nowy | NowyTeam</h1>
+<hr/>
+<img src='https://media.tenor.com/6loh4oi0es8AAAAC/killua-gon.gif'>
 
